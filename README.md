@@ -2,7 +2,7 @@
 - 👀 I’m interested in Geeky, Nerdy Stuff 😊😜
 - 🌱 I’m currently learning everything I can 😝
 - 💞️ I’m looking to collaborate on ...
-- 📫 How to reach me [Telegram : Sᴘᴏɪʟᴇᴅ Pʀɪɴᴄᴇ 🇮🇳](http://ttttt.me/SpoiledPrince "Telegram : Sᴘᴏɪʟᴇᴅ Pʀɪɴᴄᴇ 🇮🇳")
+- 📫 How to reach me [Sᴘᴏɪʟᴇᴅ Pʀɪɴᴄᴇ 🇮🇳](http://tx.me/SpoiledPrince "Sᴘᴏɪʟᴇᴅ Pʀɪɴᴄᴇ 🇮🇳")
 
 <!---
 Aftab-00/Aftab-00 is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
